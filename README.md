@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Isloana
+- Oi, sou Isloana
+- 👀 Eu estou interessada em análise de Dados
+- 🌱 Atualmente faço Vem Ser Tech - Dados parceria da Ada com Ifood
